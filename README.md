@@ -1,1 +1,1 @@
-hennkoku
+hennkou
